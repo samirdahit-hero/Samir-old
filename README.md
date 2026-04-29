@@ -1,4 +1,4 @@
-‎💥Welcome Hackers💥
+‎‎💥Welcome Hackers💥
 ‎--------|
 ‎![](https://media.tenor.com/iVCiM9W7cvYAAAAd/welcome.gif)
 ‎
@@ -11,9 +11,9 @@
 ‎</br>
 ‎<p align="center">
 ‎
-‎<h2>_RUN_COMMAND 🔰» </h2>
+‎<h2>_RUN_HANA_COMMAND 🥷» </h2>
 ‎
-‎[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FF2C10&background=31FF9400&width=435&lines=FREE+AND+FREE+NOT+PAID+COMMAND+ENJOY+DEAR%F0%9F%A4%9F)](https://git.io/typing-svg)
+‎[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FF2C10&background=31FF9400&width=435&lines=TIMRO+SAMIR+DAII+HACKER+BANNA+LAKO+XAA+DEAR%F0%9F%A4%9F)](https://git.io/typing-svg)
 ‎
 ‎```
 ‎FILE MAKE 👇👇👇👇
@@ -32,4 +32,4 @@ python Samir-old.py
 ‎
 ‎___LAH AABA SAB LE UNIKER KO AAMA RANDI HO VANA :(.___</br>
 ‎
-‎ENJOY THIS TOOL=<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
+‎MOJ MASTI GARA MERO KTA HO=<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
